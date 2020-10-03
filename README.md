@@ -1,0 +1,2 @@
+# Ruct_Rusdyansari_171011400028_Image_Processing
+Tugas UAS
